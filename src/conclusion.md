@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 11: Conclusion
-======================
-
 As we come to the end of this book, it is important to recap the key strategies for building positive workplace relationships and offer final thoughts and advice.
 
 Recap of Key Strategies for Building Positive Workplace Relationships
