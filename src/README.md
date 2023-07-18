@@ -6,5 +6,4 @@ The book explores how positive workplace relationships can promote inclusivity, 
 
 "The Power Of Positive Workplace Relationships" is a valuable resource for anyone looking to enhance their leadership skills, build stronger teams, and create a more positive work environment. Whether you're a seasoned executive or just starting your career, this book will provide you with the tools and insights needed to foster positive workplace relationships and achieve greater success. By reading this book, you'll gain a deeper understanding of the benefits of positive relationships in the workplace, and learn how to leverage them to create a more collaborative, supportive, and engaging work environment.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
