@@ -1,4 +1,4 @@
-Chapter: Communicating Effectively Through Positive Relationships
+Communicating Effectively Through Positive Relationships
 =================================================================
 
 *Subtitle: Nurturing Collaborative, Supportive, and Engaging Workplace Connections*

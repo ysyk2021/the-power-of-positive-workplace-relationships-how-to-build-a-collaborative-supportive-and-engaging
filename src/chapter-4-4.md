@@ -1,4 +1,4 @@
-Chapter 5: Addressing Limiting Beliefs
+Addressing Limiting Beliefs
 ======================================
 
 Introduction

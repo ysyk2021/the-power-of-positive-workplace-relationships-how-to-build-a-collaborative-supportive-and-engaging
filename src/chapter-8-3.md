@@ -1,4 +1,4 @@
-Chapter 5: Fostering Knowledge Sharing and Mentorship
+Fostering Knowledge Sharing and Mentorship
 =====================================================
 
 In today's fast-paced and ever-changing work environment, fostering a culture of knowledge sharing and mentorship is crucial for the success and growth of organizations. When employees are encouraged to share their expertise, insights, and experiences with one another, it creates an atmosphere of collaboration, support, and engagement. This chapter will explore the importance of knowledge sharing and mentorship in the workplace, as well as provide practical strategies for cultivating these relationships.

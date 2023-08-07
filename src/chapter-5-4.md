@@ -1,4 +1,4 @@
-Chapter 5: Fostering Collaboration with Coworkers
+Fostering Collaboration with Coworkers
 =================================================
 
 In today's fast-paced and interconnected work environments, the ability to foster collaboration among coworkers is crucial for success. When team members work together effectively, they can achieve greater productivity, generate innovative ideas, and create a supportive and engaging workplace culture. In this chapter, we will explore strategies and techniques to foster collaboration and establish strong relationships with your coworkers.

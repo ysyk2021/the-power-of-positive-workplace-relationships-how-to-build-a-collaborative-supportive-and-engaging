@@ -1,4 +1,4 @@
-Chapter: Celebrating Relationship-Based Achievements
+Celebrating Relationship-Based Achievements
 ====================================================
 
 In this chapter, we will explore the importance of recognizing and celebrating relationship-based achievements within the workplace. Building strong relationships among colleagues is crucial for creating a collaborative, supportive, and engaging environment. When individuals feel appreciated for their contributions, it fosters a positive workplace culture that fuels productivity and personal growth.

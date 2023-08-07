@@ -1,4 +1,4 @@
-Chapter 1: Overview of Positive Workplace Relationships
+Overview of Positive Workplace Relationships
 =======================================================
 
 Introduction

@@ -1,4 +1,4 @@
-Chapter 5: Addressing Fear and Uncertainty
+Addressing Fear and Uncertainty
 ==========================================
 
 In a rapidly evolving workplace, fear and uncertainty can easily take hold, hindering productivity and hindering positive workplace relationships. To foster a collaborative, supportive, and engaging environment, it is crucial to address and overcome these challenges head-on.

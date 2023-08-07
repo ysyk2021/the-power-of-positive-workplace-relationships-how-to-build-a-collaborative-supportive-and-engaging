@@ -1,4 +1,4 @@
-Chapter 1: Assessing Your Personal Approach to Workplace Relationships
+Assessing Your Personal Approach to Workplace Relationships
 ======================================================================
 
 In this chapter, we will explore the importance of assessing your personal approach to workplace relationships and understanding how it can impact your overall professional growth and success. Building positive relationships in the workplace is key to creating a collaborative, supportive, and engaging environment for yourself and your colleagues.

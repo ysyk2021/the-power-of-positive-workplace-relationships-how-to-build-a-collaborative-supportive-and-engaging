@@ -49,3 +49,4 @@
   - [Continuous Learning and Improvement](chapter-10-3.md)
   - [Adapting to Changes in the Workplace](chapter-10-4.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)

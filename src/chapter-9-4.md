@@ -1,4 +1,4 @@
-Chapter: Avoiding Information Overload
+Avoiding Information Overload
 ======================================
 
 In today's fast-paced and technology-driven world, we are constantly bombarded with a staggering amount of information. From emails to social media notifications, news updates, and project updates, it can be overwhelming to keep up with the influx of data. As a result, information overload has become a common issue in the workplace, affecting productivity, focus, and overall well-being.

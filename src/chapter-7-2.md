@@ -1,4 +1,4 @@
-Chapter 5: Developing Strategies for Overcoming Resistance
+Developing Strategies for Overcoming Resistance
 ==========================================================
 
 In any workplace, resistance to change or new ideas is common. It can hinder progress, innovation, and overall employee engagement. However, with effective strategies in place, it is possible to overcome resistance and create a more collaborative, supportive, and engaging workplace environment.

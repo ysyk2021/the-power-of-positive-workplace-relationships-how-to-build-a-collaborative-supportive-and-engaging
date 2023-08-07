@@ -1,4 +1,4 @@
-Chapter: Recognizing How Positive Relationships Contribute to Success
+Recognizing How Positive Relationships Contribute to Success
 =====================================================================
 
 Introduction

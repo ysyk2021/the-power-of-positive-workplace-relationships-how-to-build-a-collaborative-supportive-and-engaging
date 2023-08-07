@@ -1,4 +1,4 @@
-Chapter: Common Misconceptions About Workplace Relationships
+Common Misconceptions About Workplace Relationships
 ============================================================
 
 In this chapter, we will explore and debunk common misconceptions surrounding workplace relationships. By dispelling these myths, we can promote a better understanding of the dynamics that shape positive and effective collaborations in the workplace.

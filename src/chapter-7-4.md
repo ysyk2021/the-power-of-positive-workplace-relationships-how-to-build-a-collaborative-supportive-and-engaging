@@ -1,4 +1,4 @@
-Chapter 5: Fostering a Growth Mindset
+Fostering a Growth Mindset
 =====================================
 
 In this chapter, we will explore the concept of a growth mindset and its significance in building a collaborative, supportive, and engaging workplace. We will discuss how fostering a growth mindset among employees can lead to increased productivity, creativity, and overall success within the organization.

@@ -1,4 +1,4 @@
-Chapter: Identifying Opportunities to Build Positive Relationships at Work
+Identifying Opportunities to Build Positive Relationships at Work
 ==========================================================================
 
 Introduction

@@ -1,4 +1,4 @@
-Chapter 1: Understanding the Science Behind Workplace Relationships
+Understanding the Science Behind Workplace Relationships
 ===================================================================
 
 **Introduction**

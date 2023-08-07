@@ -1,4 +1,4 @@
-Chapter 5: Developing Empathy and Compassion through Positive Relationships
+Developing Empathy and Compassion through Positive Relationships
 ===========================================================================
 
 In this chapter, we will explore the significance of empathy and compassion in fostering positive workplace relationships. By developing these essential qualities, individuals can create a collaborative, supportive, and engaging work environment. We will delve into the benefits of empathy and compassion, discuss strategies to cultivate them, and highlight their impact on both personal and professional growth.

@@ -1,4 +1,4 @@
-Chapter: Encouraging Proactive Positive Workplace Relationships Across the Organization
+Encouraging Proactive Positive Workplace Relationships Across the Organization
 =======================================================================================
 
 *Subtitle: Fostering Collaboration, Support, and Engagement*

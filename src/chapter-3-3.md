@@ -1,4 +1,4 @@
-Chapter 5: Setting Realistic Goals and Objectives
+Setting Realistic Goals and Objectives
 =================================================
 
 In this chapter, we will explore the importance of setting realistic goals and objectives in creating a positive workplace environment. A collaborative, supportive, and engaging workplace is built on a foundation of clear direction and purpose. By setting realistic goals and objectives, organizations can align their efforts, motivate employees, and foster a sense of accomplishment and growth.
