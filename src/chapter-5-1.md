@@ -1,8 +1,7 @@
 Identifying Opportunities to Build Positive Relationships at Work
 ==========================================================================
 
-Introduction
-------------
+
 
 Building positive relationships in the workplace is essential for creating a collaborative, supportive, and engaging environment. When individuals have strong connections with their colleagues, it enhances productivity, job satisfaction, and overall well-being. In this chapter, we will explore different opportunities that can help foster positive workplace relationships.
 

@@ -1,8 +1,7 @@
 Overview of Positive Workplace Relationships
 =======================================================
 
-Introduction
-------------
+
 
 In today's fast-paced and competitive work environment, having positive workplace relationships is crucial for individual and organizational success. These relationships contribute to a collaborative, supportive, and engaging workplace culture that fosters productivity, innovation, and employee well-being. This chapter provides an overview of the significance and benefits of positive workplace relationships.
 
