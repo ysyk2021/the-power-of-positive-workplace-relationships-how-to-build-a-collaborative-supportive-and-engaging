@@ -1,8 +1,6 @@
 Encouraging Proactive Positive Workplace Relationships Across the Organization
 =======================================================================================
 
-*Subtitle: Fostering Collaboration, Support, and Engagement*
-
 In today's fast-paced and interconnected work environment, building positive workplace relationships has become more crucial than ever. Organizations that prioritize fostering a collaborative, supportive, and engaging atmosphere not only enhance employee satisfaction but also boost productivity and overall success.
 
 Why Proactive Positive Workplace Relationships Matter
