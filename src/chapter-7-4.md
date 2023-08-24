@@ -1,4 +1,3 @@
-# Fostering a Growth Mindset
 
 In this chapter, we will explore the concept of a growth mindset and its importance in building positive workplace relationships. By fostering a growth mindset, individuals can cultivate a culture of continuous improvement, resilience, and collaboration, leading to a more collaborative, supportive, and engaging workplace environment.
 

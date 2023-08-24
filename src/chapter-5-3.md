@@ -1,4 +1,3 @@
-# Communicating Effectively Through Positive Relationships
 
 In this chapter, we will explore the importance of effective communication in building positive workplace relationships. By fostering open, honest, and respectful communication, we can create an environment that encourages collaboration, understanding, and engagement among team members.
 

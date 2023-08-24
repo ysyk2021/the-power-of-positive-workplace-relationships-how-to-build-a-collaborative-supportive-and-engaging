@@ -1,5 +1,3 @@
-Identifying Positive Workplace Relationship Technologies and Resources
-=================================================================================
 
 In today's fast-paced and interconnected world, technology plays a critical role in fostering positive workplace relationships. By leveraging various technological tools and resources, organizations can create collaborative, supportive, and engaging workplaces. This chapter explores the key technologies and resources that contribute to building positive workplace relationships.
 

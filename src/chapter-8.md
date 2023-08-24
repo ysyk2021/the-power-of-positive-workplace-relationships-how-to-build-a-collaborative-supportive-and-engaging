@@ -1,5 +1,3 @@
-Chapter 8: Creating a Culture of Positive Workplace Relationships
-=================================================================
 
 Creating a culture of positive workplace relationships requires a concerted effort across the entire organization. This chapter will explore some strategies for creating a positive workplace culture where positive relationships can thrive.
 

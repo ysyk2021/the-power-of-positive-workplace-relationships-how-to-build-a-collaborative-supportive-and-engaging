@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Positive Workplace Relationship Skills
-=================================================================
 
 To build positive workplace relationships, it is important to develop and maximize your relationship-building skills. In this chapter, we will explore some strategies for identifying opportunities to build positive relationships at work, finding ways to apply positive relationships to your job, communicating effectively through positive relationships, and fostering collaboration with coworkers.
 

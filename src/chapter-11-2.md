@@ -1,5 +1,3 @@
-Final Thoughts and Advice
-=================================================
 
 Positive workplace relationships are essential for building a healthy and successful workplace culture. In this book, we have explored the benefits of positive workplace relationships, identified common obstacles to building them, and provided strategies for developing positive workplace relationship skills.
 

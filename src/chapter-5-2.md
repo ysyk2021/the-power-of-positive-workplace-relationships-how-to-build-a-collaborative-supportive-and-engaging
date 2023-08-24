@@ -1,5 +1,3 @@
-Finding Ways to Apply Positive Relationships to Your Job
-===================================================================
 
 In this chapter, we will explore practical strategies and techniques for applying positive relationships to your job, fostering a collaborative, supportive, and engaging workplace environment. By nurturing positive connections with your colleagues, you can enhance productivity, job satisfaction, and overall well-being.
 

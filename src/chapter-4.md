@@ -1,5 +1,3 @@
-Chapter 4: Understanding the Power of Positive Workplace Relationships
-======================================================================
 
 Positive workplace relationships are a crucial component of a healthy and successful workplace culture. In this chapter, we will explore the benefits of focusing on positive workplace relationships, recognize how positive relationships contribute to success, analyze the impact of positive relationships on individuals and organizations, and address limiting beliefs.
 

@@ -1,4 +1,3 @@
-# Overview of Positive Workplace Relationships
 
 In this chapter, we will provide an overview of the importance and benefits of positive workplace relationships. Building collaborative, supportive, and engaging relationships with colleagues is crucial for personal growth, career success, and the overall well-being of individuals and organizations.
 

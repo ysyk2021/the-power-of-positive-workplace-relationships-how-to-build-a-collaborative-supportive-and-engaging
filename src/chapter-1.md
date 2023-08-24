@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Positive workplace relationships are essential for creating a healthy and successful workplace culture. In this chapter, we will explore the importance of positive workplace relationships, common misconceptions about workplace relationships, and the benefits of building collaborative, supportive, and engaging relationships.
 

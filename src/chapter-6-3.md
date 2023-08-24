@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-==========================================
 
 In this chapter, we will explore the importance of feedback and coaching in building a collaborative, supportive, and engaging workplace. Effective feedback and coaching practices can enhance communication, promote professional growth, and foster positive relationships among team members.
 

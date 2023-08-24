@@ -1,5 +1,3 @@
-Recap of Key Strategies for Building Positive Workplace Relationships
-=============================================================================================
 
 Building positive workplace relationships is essential for creating a healthy and successful workplace culture. In this book, we have explored the benefits of positive workplace relationships and provided strategies for overcoming common obstacles to building them.
 

@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Positive Workplace Relationships
-==================================================================
 
 Resistance to positive workplace relationships can be a challenge, but it is important to address in order to create a healthy and successful workplace culture. In this chapter, we will explore some strategies for identifying common sources of resistance to positive workplace relationships, developing strategies for overcoming resistance, addressing fear and uncertainty, and fostering a growth mindset.
 

@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Positive Workplace Relationship Skills
-=================================================================
 
 Developing positive workplace relationship skills is essential for building and maintaining a healthy and successful workplace culture. In this chapter, we will explore some strategies for understanding the principles of effective positive workplace relationships, developing strategies for building collaborative, supportive, and engaging relationships, utilizing feedback and coaching, and fostering continuous learning and improvement.
 

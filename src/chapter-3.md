@@ -1,5 +1,3 @@
-Chapter 3: Developing a Positive Relationship Mindset
-=====================================================
 
 Developing a positive relationship mindset is essential for building and maintaining positive workplace relationships. In this chapter, we will explore techniques for cultivating a positive relationship mindset, utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through positive relationships.
 

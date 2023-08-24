@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Positive Workplace Relationships
-=======================================================================================
 
 In order to cultivate a positive and harmonious workplace environment, it is crucial to identify and address the common sources of resistance that hinder the development of positive workplace relationships. Recognizing these barriers will enable us to proactively tackle them and create a more collaborative, supportive, and engaging workplace for all employees.
 

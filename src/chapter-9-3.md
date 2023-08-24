@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-==================================================
 
 In a rapidly evolving workplace, fostering accessibility and inclusivity has become instrumental in building a collaborative, supportive, and engaging work environment. Embracing diversity and promoting equal opportunities is not only morally right but also enhances productivity, innovation, and overall employee satisfaction.
 

@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Positive Workplace Relationships
-=====================================================================
 
 In today's digital age, technology has become an increasingly important tool for building and maintaining positive workplace relationships. This chapter will explore the different ways in which technology can be leveraged to enhance positive workplace relationships.
 
@@ -45,5 +43,4 @@ Conclusion
 ----------
 
 Technology can be a powerful tool for building and maintaining positive workplace relationships. By identifying positive relationship technologies and resources, using technology to enhance positive relationship experiences, fostering accessibility and inclusivity, and avoiding information overload, you can create a more collaborative, supportive, and engaging workplace culture for yourself and your colleagues.
-
 

@@ -1,5 +1,3 @@
-Chapter 2: Defining Positive Workplace Relationships
-====================================================
 
 Positive workplace relationships are essential for creating a healthy and successful workplace culture. In this chapter, we will provide an overview of positive workplace relationships, explore the science behind workplace relationships, and provide guidance for assessing your personal approach to workplace relationships.
 

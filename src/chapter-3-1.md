@@ -1,5 +1,3 @@
-Techniques for Cultivating a Positive Relationship Mindset
-===================================================================
 
 In this chapter, we will explore various techniques and strategies that can help individuals cultivate a positive relationship mindset in the workplace. By adopting these practices, you can foster a collaborative, supportive, and engaging environment that promotes productivity and well-being.
 
